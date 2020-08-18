@@ -1,0 +1,4 @@
+Facebook announces Libra cryptocurrency: All you need to know
+https://techcrunch.com/2019/06/18/facebook-libra/?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce_referrer_sig=AQAAACum5yZ6v950ODlCHVGDEJHlH28bDq9SOPrGVMwzOyrR3e7pYTDNP9_yDFuLGlYLe59g-TmZJ3dOVoIti0mRTJlOPP7u17uQuR6XMplBDtNwvYVAFPMSLP5nQMLVDynQlXGdN3d0Xmp6ja8zoymiqrm-R9dG2h3xQBO0mhHPMtT4
+
+READ THIS
